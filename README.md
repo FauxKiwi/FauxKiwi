@@ -1,4 +1,3 @@
-### Hi there 👋
 [[To my repositories]](https://www.github.com/FauxKiwi?tab=repositories)
 
 [[Reach me on Discord]](https://www.discord.com/users/Siinus#3931)
